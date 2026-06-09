@@ -1,4 +1,5 @@
 # ⚔️ Malik Taha — Cybersecurity Developer
+<meta name="google-site-verification" content="SAmMl5p-xCPvJW0ZWkA-EeT5lpd7HsxweYzBtyJZUlc" />
 
 > BS Cybersecurity | Sir Syed CASE Institute of Technology, Islamabad
 
